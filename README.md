@@ -1,2 +1,4 @@
-- 👋 Hi, I’m @MrZikis
-- 👀 Drink coffee and live!
+Things i hate:
+[My lawyer doesn't recommend me to write it]👨‍⚖️
+black bananas 🍌
+Austria painter - you know who i mean 💀
